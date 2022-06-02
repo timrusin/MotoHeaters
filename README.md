@@ -1,1 +1,1 @@
-Motorola Heaters instruciton landing page
+Motorola Heaters instruction landing page
